@@ -1,7 +1,7 @@
 ---
 title: Wybielanie zębów FAQ
 date: 2022-08-21T00:00:00+02:00
-hero: "/images/wybielanie-zebow-pytania.jpg"
+hero: "/images/wybielanie-zebow-pytania-1.jpg"
 excerpt: Często zadawane pytanie na temat wybielania zębów
 timeToRead: 8
 authors: []
