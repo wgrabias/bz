@@ -33,14 +33,21 @@ Wybielanie zębów można przeprowadzać na wiele sposobów. Najbardziej popular
 1. Nie jest to metoda całkowicie skuteczna, a efekty mogą być krótkotrwałe.
 2. Może być niebezpieczna, jeśli nie stosuje się jej zgodnie z instrukcją.
 3. Może powodować podrażnienia skóry.
-
-Może być droga.
+4. Może być droga.
 
 ##### Zalety
 
 1. Jest to metoda szybka i łatwa w użyciu.
 2. Można ją stosować w domu.
 3. Nie wymaga specjalistycznego sprzętu.
+
+### Wybielanie sodą oczyszczoną
+
+Soda oczyszczona jest popularnym środkiem wybielającym zęby. Ścieranie szkliwa zębów przy użyciu sody oczyszczonej może pomóc usunąć przebarwienia. Jednak **uszkodzenie szkliwa przy stosowaniu tej metody jest wysoce prawdopodobne**. Z tego powodu metoda ta j**est uznawana za niebezpieczną**.
+
+### Wybielanie węglem aktywnym
+
+Węgiel aktywny na białe zęby to popularna metoda, która stała się sławna dzięki influencerom i blogerom. Polega ona na tym, że węgiel wybiela zęby, a także je oczyszcza. Metoda ta jest **uważana za niebezpieczną dla uzębienia**, ponadto, węgiel może powodować podrażnienia dziąseł.
 
 ### Wybielanie płynami do płukania ust
 
