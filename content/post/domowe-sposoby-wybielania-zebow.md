@@ -5,7 +5,7 @@ title: Domowe sposoby wybielania zębów
 excerpt: Wybielanie zębów można przeprowadzać na wiele sposobów. Oto najpopularniejsze
   z nich...
 date: 2022-08-23T00:00:00+02:00
-hero: "/images/teeth-g09a763125_1280.jpg"
+hero: "/images/teeth-g09a763125_1280-1.jpg"
 
 ---
 Wybielanie zębów można przeprowadzać na wiele sposobów. Najbardziej popularne z nich to:
