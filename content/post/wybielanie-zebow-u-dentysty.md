@@ -19,7 +19,7 @@ Kolejny krok to zabezpieczenie tkanek miękkich i nałożenie żelu.
 
 Następnie rozpoczyna się naświetlanie **lampą Beyond**. Światło emitowane przez lampę to zimne niebieskie światło, strumień przechodzi przez specjalne filtry, wycinające światło UV. Samo światło nie ma efektu wybielającego, aktywuje jedynie żel i przyśpiesza jego działanie. Dzięki temu ryzyko wystąpienia nadwrażliwości ograniczone jest do minimum.
 
-Wybielanie zębów w gabinecie jest bezpieczne i nie uszkadza szkliwa. W [przeciwieństwie do wybielania w domu](https://biale-zeby-wroclaw.pl/post/domowe-sposoby-wybielania-zebow/ "domowe sposoby wybielania zębów"), które może przynieść negatywne skutki, takie jak złuszczanie się szkliwa i wrażliwość na zimno i ciepło. Z tego powodu zaleca się wykonywanie zabiegu wyłącznie przez lekarza stomatologa.
+Wybielanie zębów w gabinecie jest bezpieczne i nie uszkadza szkliwa. W przeciwieństwie d [wybielania w domu](https://biale-zeby-wroclaw.pl/post/domowe-sposoby-wybielania-zebow/ "domowe sposoby wybielania zębów"), które może przynieść negatywne skutki, takie jak złuszczanie się szkliwa i wrażliwość na zimno i ciepło. Z tego powodu zaleca się wykonywanie zabiegu wyłącznie przez lekarza stomatologa.
 
 Obejrzyj film przedstawiający wybielanie
 
@@ -27,5 +27,7 @@ Obejrzyj film przedstawiający wybielanie
     
 
 Zabieg nie jest bolesny. Większość ludzi doświadcza tylko lekkiej wrażliwości na szczotkowanie zębów po zabiegu.
+
+[Wybielanie zębów lampą Beyond w Krakowie](https://www.researchgate.net/deref/https://wybiel.pl/krakow-wybielanie-zebow-beyond/)
 
 Image by [Cezary](https://pixabay.com/users/lionfive-6666742/?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=2874551) from [Pixabay](https://pixabay.com//?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=2874551)
