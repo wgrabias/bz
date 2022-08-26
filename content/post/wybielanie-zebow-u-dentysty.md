@@ -31,3 +31,5 @@ Zabieg nie jest bolesny. Większość ludzi doświadcza tylko lekkiej wrażliwo�
 [Wybielanie zębów lampą Beyond w Krakowie](https://www.researchgate.net/deref/https://wybiel.pl/krakow-wybielanie-zebow-beyond/)
 
 Image by [Cezary](https://pixabay.com/users/lionfive-6666742/?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=2874551) from [Pixabay](https://pixabay.com//?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=2874551)
+
+[o wybielaniu](https://john-doe-22.gitbook.io/untitled/)
