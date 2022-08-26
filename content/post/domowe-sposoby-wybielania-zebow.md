@@ -43,7 +43,7 @@ Wybielanie zębów można przeprowadzać na wiele sposobów. Najbardziej popular
 
 ### Wybielanie sodą oczyszczoną
 
-Soda oczyszczona jest popularnym środkiem wybielającym zęby. Ścieranie szkliwa zębów przy użyciu sody oczyszczonej może pomóc usunąć przebarwienia. Jednak **uszkodzenie szkliwa przy stosowaniu tej metody jest wysoce prawdopodobne**. Z tego powodu metoda ta j**est uznawana za niebezpieczną**.
+Soda oczyszczona jest popularnym środkiem wybielającym zęby. Ścieranie szkliwa zębów przy użyciu sody oczyszczonej może pomóc usunąć przebarwienia. Jednak **uszkodzenie szkliwa przy stosowaniu tej metody jest wysoce prawdopodobne**. Z tego powodu metoda ta **jest uznawana za niebezpieczną**.
 
 ### Wybielanie węglem aktywnym
 

@@ -23,7 +23,7 @@ Wybielanie zębów w gabinecie jest bezpieczne i nie uszkadza szkliwa. W [przeci
 
 Obejrzyj film przedstawiający wybielanie
 
-    [![wybielanie zębów Beyond](https://img.youtube.com/vi/MVhpW-uQPmc/0.jpg)](https://www.youtube.com/watch?v=MVhpW-uQPmc)
+[![wybielanie zębów Beyond](https://img.youtube.com/vi/MVhpW-uQPmc/0.jpg)](https://www.youtube.com/watch?v=MVhpW-uQPmc)
     
 
 Zabieg nie jest bolesny. Większość ludzi doświadcza tylko lekkiej wrażliwości na szczotkowanie zębów po zabiegu.
