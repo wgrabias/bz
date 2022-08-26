@@ -21,6 +21,11 @@ Następnie rozpoczyna się naświetlanie **lampą Beyond**. Światło emitowane 
 
 Wybielanie zębów w gabinecie jest bezpieczne i nie uszkadza szkliwa. W [przeciwieństwie do wybielania w domu](https://biale-zeby-wroclaw.pl/post/domowe-sposoby-wybielania-zebow/ "domowe sposoby wybielania zębów"), które może przynieść negatywne skutki, takie jak złuszczanie się szkliwa i wrażliwość na zimno i ciepło. Z tego powodu zaleca się wykonywanie zabiegu wyłącznie przez lekarza stomatologa.
 
+Obejrzyj film przedstawiający wybielanie
+
+    [![wybielanie zębów Beyond](https://img.youtube.com/vi/MVhpW-uQPmc/0.jpg)](https://www.youtube.com/watch?v=MVhpW-uQPmc)
+    
+
 Zabieg nie jest bolesny. Większość ludzi doświadcza tylko lekkiej wrażliwości na szczotkowanie zębów po zabiegu.
 
 Image by [Cezary](https://pixabay.com/users/lionfive-6666742/?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=2874551) from [Pixabay](https://pixabay.com//?utm_source=link-attribution&utm_medium=referral&utm_campaign=image&utm_content=2874551)
