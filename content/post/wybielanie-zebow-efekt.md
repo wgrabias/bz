@@ -5,6 +5,7 @@ title: Wybielanie zębów efekt
 excerpt: ''
 date: 2022-08-27T00:00:00+02:00
 hero: "/images/ba-5.jpeg"
+draft: true
 
 ---
 Oto kilka zdjęć przed i po użyciu Beyond Polus do wybielania zębów: 
