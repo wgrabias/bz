@@ -11,7 +11,7 @@ Licówki porcelanowe to cienkie płytki, które przykleja się do wierzchniej po
 
 ## Czym się różnią licówki ceramiczne od kompozytowych?
 
-Licówki ceramiczne są wykonane z ceramiki, a kompozytowe – z kompozytu. Ceramika jest bardziej trwała i odporna na zmiany temperatury niż kompozyt, dlatego licówki ceramiczne są bardziej wartościowe i droższe. Kompozyt jest jednak bardziej elastyczny i łatwiejszy w naprawie niż ceramika, dlatego licówki kompozytowe są częściej wybierane przez pacjentów.
+Licówki ceramiczne są wykonane z ceramiki, a kompozytowe – z kompozytu. Ceramika jest bardziej trwała i odporna na zmiany temperatury niż kompozyt, dlatego [licówki ceramiczne](https://maesticdental.pl/stomatologia/cennik "Licówki ceramiczne") są bardziej wartościowe i droższe. Kompozyt jest jednak bardziej elastyczny i łatwiejszy w naprawie niż ceramika, dlatego licówki kompozytowe są częściej wybierane przez pacjentów.
 
 ## Ile kosztują licówki?
 
@@ -21,6 +21,6 @@ Cena licówek zależy od rodzaju użytego materiału, kształtu i koloru. Liców
 
 Implanty są trwalszym i bardziej wartościowym rozwiązaniem niż licówki. Są jednak także bardziej kosztowne i czasochłonne w wykonaniu. Dlatego implanty są częściej wybierane przez pacjentów, którzy mają większe problemy ze zdrowiem zębów.
 
-## Jak dbać o licówki? 
+## Jak dbać o licówki?
 
 Licówki wymagają odpowiedniej pielęgnacji, należy o nie dbać tak samo, jak o naturalne zęby. Należy je myć regularnie szczoteczką i pastą dla dzieci, które służą do tego właśnie celu. Dodatkowo warto też używać płynów do płukania ust, które dodatkowo wzmocnią działanie szczoteczki i pasty, żeby licówki były jeszcze bardziej czyste i świeże. Licówki należy myć tak samo, jak zęby.
