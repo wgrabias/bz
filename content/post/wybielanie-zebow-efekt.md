@@ -21,4 +21,6 @@ Większość ludzi nie doświadcza żadnych skutków ubocznych podczas wybielani
 
 ## Jak długo utrzymuje się efekt?
 
-Efekty wybielania zębów mogą utrzymywać się do 12 miesięcy, w zależności od indywidualnego stylu życia i nawyków higienicznych danej osoby. Biała dieta jest ważna dla utrzymania efektu wybielania zębów, zwłaszcza unikanie kawy, herbaty i czerwonego wina. Wybielanie zębów można powtarzać Efekt wybielania może być niezadowalający jeśli zęby są przebarwione przez leki lub inne substancje, które przenikają do szkliwa zębowego,
+Efekty wybielania zębów mogą utrzymywać się do 12 miesięcy, w zależności od indywidualnego stylu życia i nawyków higienicznych danej osoby. Biała dieta jest ważna dla utrzymania efektu wybielania zębów, zwłaszcza unikanie kawy, herbaty i czerwonego wina. 
+
+Wybielanie zębów można powtarzać Efekt wybielania może być niezadowalający jeśli zęby są przebarwione przez leki lub inne substancje, które przenikają do szkliwa zębowego,
